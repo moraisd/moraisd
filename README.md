@@ -1,6 +1,8 @@
 Daniel Cardoso de Morais
+
 moraisd@protonmail.com
-linkedin.com/in/danielcmorais/
+
+www.linkedin.com/in/danielcmorais/
 
 <!---
 moraisd/moraisd is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
