@@ -1,6 +1,6 @@
 Daniel Cardoso de Morais
 
-moraisd@protonmail.com
+moraisd[at]protonmail[dot]com
 
 www.linkedin.com/in/danielcmorais/
 
