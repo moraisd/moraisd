@@ -1,5 +1,3 @@
-Daniel Cardoso de Morais
-
 moraisd[at]proton[dot]me
 
 www.linkedin.com/in/danielcmorais/
